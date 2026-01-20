@@ -1,1 +1,1 @@
-# Artificial-Intelligence-Training-in-Mumbai
+# Online-Artificial-Intelligence-Training-in-Mumbai
